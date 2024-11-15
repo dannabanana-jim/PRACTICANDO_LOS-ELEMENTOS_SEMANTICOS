@@ -52,10 +52,15 @@
 
 #8
 
+![image](https://github.com/user-attachments/assets/bc65aced-02e9-4a9c-a12d-3c9264af6644)
+![image](https://github.com/user-attachments/assets/fad3b5a8-cc2a-4f52-acab-7db36ad83fe3)
 
 
 #9
 
+![image](https://github.com/user-attachments/assets/fde2888d-8c07-4309-b947-731af41021d2)
+![image](https://github.com/user-attachments/assets/021d89c3-a9e1-485d-aff7-0d02f68585c6)
+![image](https://github.com/user-attachments/assets/018b9550-b4e8-4dee-a20a-b1bb02b7ed05)
 
 
 
